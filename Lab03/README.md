@@ -8,7 +8,7 @@
 - Ссылка на скринкаст защиты презентации: https://rutube.ru/video/17560b002b5790d97b905fc48d033be4/
 #### Платформа:
 - Ссылка на плейлист: https://plvideo.ru/playlist?list=ZZ7AxCEXU659
-- Ссылка на скринкаст выполнения лабораторной работы: https://plvideo.ru/watch?v=yyCPuQGbuise
-- Ссылка на скринкаст подготовки отчёта: https://plvideo.ru/watch?v=VebtIahcKuq3
+- Ссылка на скринкаст выполнения лабораторной работы: https://plvideo.ru/watch?v=8QlReRuaBwGI
+- Ссылка на скринкаст подготовки отчёта: https://plvideo.ru/watch?v=VC_Du8JPmU_h
 - Ссылка на скринкаст подготовки презентации: https://plvideo.ru/watch?v=mGSIBInPUGyy
 - Ссылка на скринкаст защиты презентации: https://plvideo.ru/watch?v=VQvlO-3ikBd9
